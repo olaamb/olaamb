@@ -11,7 +11,7 @@ Im currently studying to become a java-developer at IT-högskolan in Gothenburg.
 
 👊 Ready for completely new (and frightening) challenges in the world of IT 😅
 
-🎨 Interest in art. Especially paintings!
+🎨 Interested in arts & crafts. Especially paintings!
 
 📚 Into audiobooks and sometimes even regular books. Mostly sci-fi and fantasy.
 
