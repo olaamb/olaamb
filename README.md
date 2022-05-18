@@ -7,7 +7,7 @@ Im currently studying to become a java-developer at IT-högskolan in Gothenburg.
 -->
 
 
-⚡ Switched from a career in healthcare with a degree to programming
+⚡ Switched from a 10 year career in healthcare where I a degree to become a programmer
 
 👊 Ready for completely new (and frightening) challenges in the world of IT 😅
 
